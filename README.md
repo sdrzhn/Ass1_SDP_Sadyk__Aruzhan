@@ -1,0 +1,1 @@
+# Ass1_SDP_Sadyk__Aruzhan
